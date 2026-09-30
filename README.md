@@ -1,0 +1,2 @@
+# premium-olive-press-001-olive-press-stone-mill-heritag
+You've inherited a historic olive mill, but the restoration feels overwhelming—where do you even start? Stop piecing together scattered notes and spreadsheets, and start with a single, heritage-focused plan.  This Notion template transforms the chaos of restoring a stone olive press into a clear, step-by-step process. It preserves your mill's uniqu
